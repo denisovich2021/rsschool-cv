@@ -5,7 +5,13 @@ __________________
 ### _Junior Front-end developer (treinee)_
 ### _Developer_
 
+[bikerden69@tut.by](mailto:bikerden69@tut.by)
 
+Discord: \_denisovich2021_#5475
+
+Gomel city
+
+Belarus
 __________________
 
 **My career Objective**
